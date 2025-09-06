@@ -1,3 +1,5 @@
+https://youtu.be/uvYLFvmYZLI?si=z_hWj_wEuWqz0pIu
+
 Denoiser X — Live Mic Noise Filtering (DeepFilterNet)
 ====================================================
 
